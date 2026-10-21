@@ -19,7 +19,7 @@ A passionate Web Developer & Networking Enthusiast.
 
 ### 📫 Connect with Me
 - **LinkedIn:** [linkedin.com/in/yourprofile](https://Superonce01@gmail.com)
-- **Email:** your.email@example.com
+- **Email:** Superonce01@gmail.com
 
 ---
 
